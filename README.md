@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @UshaJaiswal
 - 👀 I’m interested in giving opportunities to deserving tech talent
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ... HR Automation
 - 💞️ I’m looking to collaborate on ... tech hiring
 - 📫 How to reach me ... visit https://www.linkedin.com/in/usha1610/
 
